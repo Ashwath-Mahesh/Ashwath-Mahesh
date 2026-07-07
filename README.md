@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡️ Pursuing B.Tech in Information Technology
+Software Engineer
 
 
 ## 🌐 Socials:
